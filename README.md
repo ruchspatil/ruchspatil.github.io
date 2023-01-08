@@ -1,1 +1,0 @@
-# ruchita-patil.github.io
